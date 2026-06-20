@@ -10,11 +10,11 @@ no context because yes
 <img src="http://dl.glitter-graphics.net/pub/989/989321gyey13hzit.gif" width=500 height=25 border=0></a><br>
 <img src="http://dl4.glitter-graphics.net/pub/903/903934uxmeclqa9d.gif" width=429 height=20 border=0></a><br>
 
-<br><br><br><br>
+<br><br>
 
 <img src="https://text.glitter-graphics.net/psy/s.gif" border=0><img src="https://text.glitter-graphics.net/psy/i.gif" border=0><img src="https://text.glitter-graphics.net/psy/g.gif" border=0><img src="https://text.glitter-graphics.net/psy/n.gif" border=0><img src="https://dl3.glitter-graphics.net/empty.gif" width=20 border=0><img src="https://text.glitter-graphics.net/psy/a.gif" border=0><img src="https://text.glitter-graphics.net/psy/t.gif" border=0><img src="https://text.glitter-graphics.net/psy/a.gif" border=0></a>
 <img src="https://text.glitter-graphics.net/psy/i.gif" border=0><img src="https://text.glitter-graphics.net/psy/m.gif" border=0><img src="https://dl3.glitter-graphics.net/empty.gif" width=20 border=0><img src="https://text.glitter-graphics.net/psy/c.gif" border=0><img src="https://text.glitter-graphics.net/psy/o.gif" border=0><img src="https://text.glitter-graphics.net/psy/o.gif" border=0><img src="https://text.glitter-graphics.net/psy/l.gif" border=0></a>
 
-<br><br><br><br>
+<br><br>
 
 <img src="http://dl10.glitter-graphics.net/pub/619/619380a8c7yo5al4.gif" width=430 height=15 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
