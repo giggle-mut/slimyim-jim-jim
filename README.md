@@ -7,3 +7,4 @@
 <img src="http://dl7.glitter-graphics.net/pub/754/754667r8n2u197zw.gif" width=150 height=20 border=0></a><br>
 <img src="http://dl9.glitter-graphics.net/pub/3765/3765379lr6knwxr8l.gif" width=150 height=20 border=0></a><br>
 <img src="http://dl.glitter-graphics.net/pub/989/989321gyey13hzit.gif" width=500 height=25 border=0></a><br>
+<img src="https://text.glitter-graphics.net/psy/s.gif" border=0><img src="https://text.glitter-graphics.net/psy/i.gif" border=0><img src="https://text.glitter-graphics.net/psy/g.gif" border=0><img src="https://text.glitter-graphics.net/psy/n.gif" border=0><img src="https://dl3.glitter-graphics.net/empty.gif" width=20 border=0><img src="https://text.glitter-graphics.net/psy/a.gif" border=0><img src="https://text.glitter-graphics.net/psy/t.gif" border=0><img src="https://text.glitter-graphics.net/psy/a.gif" border=0></a>
