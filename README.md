@@ -1,4 +1,4 @@
-# =^.^=
+# =^.^= dunno if it cool in pc
 <img src="http://dl5.glitter-graphics.net/pub/184/184475y66x8elc3k.gif" width=532 height=24 border=0></a><br>
 <img src="http://dl5.glitter-graphics.net/pub/674/674435gqg299c4xs.gif" width=100 height=26 border=0></a><br>
 <img src="http://dl.glitter-graphics.net/pub/968/968511q318uvy062.jpg" width=160 height=47 border=0></a><br>
@@ -15,5 +15,6 @@
 <img src="http://dl4.glitter-graphics.net/pub/338/338474vkdwxjovcr.gif" width=100 height=100 border=0></a>
 <img src="http://dl8.glitter-graphics.net/pub/986/986408fp6ehrieuw.gif" width=100 height=100 border=0></a>
 <img src="http://dl.glitter-graphics.net/pub/221/221751ynmvvtw1z9.gif" width=100 height=100 border=0></a>
+<img src="http://dl2.glitter-graphics.net/pub/42/42872jynl1y6gep.gif" width=100 height=100 border=0></a>
 <br>
 <img src="http://dl10.glitter-graphics.net/pub/619/619380a8c7yo5al4.gif" width=430 height=15 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
